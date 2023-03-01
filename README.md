@@ -1,0 +1,1 @@
+# davaleba-leqcia-12-istvis
